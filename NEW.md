@@ -1,1 +1,0 @@
-HeReTiCS topchik
